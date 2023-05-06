@@ -1,1 +1,1 @@
-hellow world to all my friends 
+hellow world to all my friends and enemies  
